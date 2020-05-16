@@ -1,3 +1,3 @@
 # Hello-World
 
-poop and pee yellow and green
+TimmyZ - Coffee, bike and computers.
